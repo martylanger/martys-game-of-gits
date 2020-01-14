@@ -4,4 +4,4 @@ Regent.  He is surely honorable and will lead a long and prosperous life.
 
 House Snark of Splintercell is sped by the sussed Seddard "Sed" Stark, Sword of Splintercell, Sorden of the Sorth...
 
-And so the story of Ned the Starkster ends, and the story of Ned the Dungbeetle begins.
+And so the story of Ned the Starkster ends, and Seddard took control of Westeros and became the protector of the realm
